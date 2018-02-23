@@ -1,6 +1,6 @@
 [*гугл форма*](https://goo.gl/forms/ztfgWcuQkLkk0rf13)
 
-[**таблица**](https://docs.google.com/spreadsheets/d/e/2PACX-1vSv9FuNygx-Ti4739QulLjx0RkTHVSqLyh44GfsgV-geaoRCHf6LOw3UyE9gRCZ68fNGM983eXqnbUm/pubhtml?gid=1500366529&single=true)
+[**таблица**](https://docs.google.com/spreadsheets/d/1wj9S3db9CKxmanC2oV8bYzaQ-6dbqhkCWTnf8PQX2Yw/edit#gid=1500366529&fvid=408524159)
 
 
 Я проводила опрос про вовлеченность студентов в экстремальные виды спорта. Думаю, именно актуальность данной темы стала причиной того, что за короткий промежуток времени у меня набралось достаточное количество ответов. Респонденты дали интересные ответы, оказывается, среди ребят моего курса много фанатов паркура или прыжков с парашютом!
